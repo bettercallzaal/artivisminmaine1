@@ -2,7 +2,7 @@
 ## Community Buzz & Ticket Sales for Freedom & Justice Summit
 
 **Event:** November 6-9, 2025 | Ellsworth, Maine  
-**Goal:** Fill The Grand Theater with friendly, consistent promotion
+**Goal:** Sell 800 tickets (400 seats x 2 ticketed nights: Nov 7 & 8)
 
 ---
 
@@ -288,7 +288,9 @@ That's why we're bringing world-class artists to Maine. That's why we're creatin
 
 ## **SUCCESS TARGET**
 
-**Goal:** Fill The Grand Theater (300 seats) with excited community members
+**Goal:** Sell 800 tickets total
+- **Friday Nov 7:** "Our Youth, Our Future" performance (400 seats)
+- **Saturday Nov 8:** "Our Past, Our Present" performance (400 seats)
 
 ---
 
@@ -331,4 +333,4 @@ That's why we're bringing world-class artists to Maine. That's why we're creatin
 4. **Set up Luma ticketing page**
 5. **Get people talking** around Ellsworth
 
-**Bottom Line:** Let's fill The Grand Theater with people who are genuinely excited to be there, using simple, friendly marketing that feels like it's coming from a neighbor who's excited about something cool happening in town.
+**Bottom Line:** Let's sell 800 tickets (both Friday and Saturday nights) with people who are genuinely excited to be there, using simple, friendly marketing that feels like it's coming from a neighbor who's excited about something cool happening in town.
